@@ -11,7 +11,7 @@ mostly i play on safe russian server 1, but It's not the only server i play on, 
 
 you can interact with me if you want if it's not some idiotic shit, but it is not recommended anyways.
                                                
-DNI: people under 13; selfship; sexism; hypocrites; those nonbinary depressive guys; jerks who actively supports putin and all this shit in our country; people with "the victim" syndrome; intrusive ppl; "funny" ragebaiters.
+DNI: people under 13; selfship; sexism; hypocrites; those nonbinary depressive guys; jerks who actively supports putin and all this shit that is happening right now in our country; islam; people with "the victim" syndrome; intrusive ppl; "funny" ragebaiters; rad feminism.
                                           
-
+my music taste: RAMMSTEIN, Powerwolf, Tally Hall, And One, Heaven Pierce Her, Will Wood.
 
